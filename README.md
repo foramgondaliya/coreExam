@@ -22,7 +22,6 @@ https://github.com/foramgondaliya/coreExam/assets/149999919/4e08d3a7-c2d2-48fc-9
 
 ![Screenshot_20240516_233720](https://github.com/foramgondaliya/coreExam/assets/149999919/107e9027-e612-4e14-aab6-242a123d2055)
 ![Screenshot_20240517_202955](https://github.com/foramgondaliya/coreExam/assets/149999919/aeb55061-69ea-4ca6-a3ba-bdc4585cec6b)
-![Screenshot_20240516_233739](https://github.com/foramgondaliya/coreExam/assets/149999919/40a5ab1a-fdd1-4179-bc2e-39bc537f02dd)
 ![Screenshot_20240517_202407](https://github.com/foramgondaliya/coreExam/assets/149999919/27292c56-6092-4b1b-8ada-5689395e2846)
 ![Screenshot_20240517_202817](https://github.com/foramgondaliya/coreExam/assets/149999919/c7607eb1-c395-49d5-a846-e4d5825e60f0)
 
